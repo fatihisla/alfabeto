@@ -1,1 +1,0 @@
-# islamovski.fatih.4h.alfabeto
